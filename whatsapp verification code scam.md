@@ -17,7 +17,7 @@ after few hour
 
 the link please prress on your own risk and storngly in vmware to avoid malware infection
 
- https://whtasapp-l.com 
+ https://whtasapp-l.comCLICKATYOUROWNRISKKK
 
 **🔍 INVESTIGATION SUMMARY - POINT FORM**
 
